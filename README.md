@@ -1,4 +1,4 @@
-# EFEKTA TH DUO V2
+# EFEKTA TH DUO Max
 
 Телеграм чат DIY Devices - https://t.me/diy_devices
 
